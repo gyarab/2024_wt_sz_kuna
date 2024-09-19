@@ -1,1 +1,1 @@
-# 2024_wt_sz_kuna
+# Alan Turing (1912 - 1954)
